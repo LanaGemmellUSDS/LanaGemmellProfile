@@ -7,7 +7,7 @@ Quick Facts:
 - ⏪ I was at a fin-tech company, where I helped launch and shape their enterprise and platform product lines
 - 💃 Outside of work, I am a competitive Irish dancer. I compete nationally and internationally (Upcoming: Dallas & 🤞UK)
 - 🥤 I am a cold brew enthusiast (though I'm on a Matcha kick lately)
-- 🐶 Occasionally, you'll see my pup Zev pop into video calls or on trips with me - he's quite the attention & travel enthusiast!
+- 🐶 Occasionally, you'll see my pup, Zev, pop into video calls or on trips with me - he's quite the attention & travel enthusiast!
 
 👱‍♀️ Want to know more about me ⤵️
 
