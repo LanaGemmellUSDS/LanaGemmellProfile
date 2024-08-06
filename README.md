@@ -31,7 +31,7 @@ Quick Facts:
 🌟 Additional Experience & Interests:
 
 - Competitve Dancer (& occasional assistant teacher/biz dev advisor) at O’Donnell Academy of Irish Dance, elevating and sharing my love of Irish Dance and Music.
-- Active member of Women in Product Book Club, fostering continuous learning and professional development. I welcome any and all 📖 recommendations.
+- Active member of the Women in Product Book Club, fostering continuous learning and professional development. I welcome any and all 📖 recommendations.
 
 🎓 Education & Certifications:
 
